@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **vishalvaish847@gmail.com**
 
-- ⚡ Fun fact **I love stories**
+- ⚡ Fun fact **I love Music**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
